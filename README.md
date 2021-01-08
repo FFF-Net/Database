@@ -2,7 +2,7 @@
 You can download a file with click view
 
 ## Minecraft?
-Click [Here](github.com/Agra-Net/HHH
+Click [Here](github.com/Agra-Net/HHH)
 
 ## Why i am use github?
 User interface are best!
