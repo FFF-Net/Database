@@ -11,14 +11,14 @@ User interface are best!
 playgame.farisjihadih@gmail.com
 
 ## About
-> This for FFF only.
-> No whatsapp link
-> Ok Done
+This for FFF only.
+No whatsapp link
+Ok Done
 
 ## Rules IDN
-> Damai
-> Tidak ada kata kata kasar
-> Tidak ada konten 18+
-> Santuy Ae
+Damai
+Tidak ada kata kata kasar
+Tidak ada konten 18+
+Santuy Ae
 
 ### End
