@@ -17,8 +17,11 @@ Ok Done
 
 ## Rules IDN
 Damai
+
 Tidak ada kata kata kasar
+
 Tidak ada konten 18+
+
 Santuy Ae
 
 ### End
