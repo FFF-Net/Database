@@ -1,27 +1,27 @@
 # Databases
 You can download a file with click view
 
-## Minecraft?
+### Minecraft?
 Click [Here](https://www.github.com/FFF-Net/HHH)
 
-## Why i am use github?
+### Why i am use github?
 User interface are best!
 
-## Contact Me 
-playgame.farisjihadih@gmail.com
+### Contact Me 
+playgame.farisjihadih@gmail.com (Outdated)
 
-## About
+### About
 This for FFF only.
 No whatsapp link
 Ok Done
 
-## Rules IDN
-Damai
+### Rules IDN
+Rules in indonesia | 
+------------ | 
+Damai | 
+No 18+ | 
+No NSFW | 
+No Rude words | 
 
-Tidak ada kata kata kasar
-
-Tidak ada konten 18+
-
-Santuy Ae
 
 ### End
